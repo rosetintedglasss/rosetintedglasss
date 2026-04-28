@@ -5,12 +5,11 @@
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/f62.png">
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/e78.gif">
   <br>
-  $\text{\color{#d92e2e} tristan, they/it, polyam trans nonbinary bisexual, 23 (feb 8th) }$
+  $\text{\color{#d92e2e} tristan, they/it, polyam trans nonbinary bisexual, 23 (feb 8th), did system }$
   <img src="https://pixelsafari.neocities.org/favicon/nature/rainbow11.gif">
   <br>
   <img src="https://pixelsafari.neocities.org/favicon/object/tech/computer4.gif">
-  $\text{\color{#d9822e} usually dont talk but i like sending ppl crowns in whispers if i recognize their pony/like the morph :P }$
-  <br>
+  $\text{\color{#d9822e} i dont talk much if im just spectating and such.. but dont hesitate to whisper or say hi if u wanna!!! }$
   $\text{\color{#d6d92e} im super autistic and i rant about my interests.. ask me if u wanna know.. heh.. }$
   <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy7.gif">
   <br>
