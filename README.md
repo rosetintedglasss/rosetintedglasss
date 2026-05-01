@@ -10,7 +10,8 @@
   <br>
   <img src="https://pixelsafari.neocities.org/favicon/object/tech/computer4.gif">
   $\text{\color{#d9822e} i dont talk much if im just spectating and such.. but dont hesitate to whisper or say hi if u wanna!!! }$
-  $\text{\color{#d6d92e} im super autistic and i rant about my interests.. ask me if u wanna know.. heh.. }$
+  $\text{\color{#d6d92e} again i dont talk much but i like watching docks in 18+ talk about drama/srs topics or joining rps in the safe server! }$
+  $\text{\color{#d6d92e} (psst, if uve seen me, say hi to me on my guestbook ata page!) }$
   <img src="https://pixelsafari.neocities.org/favicon/object/toy/toy7.gif">
   <br>
   <img src="https://pixelsafari.neocities.org/favicon/object/party/confetti.gif">
