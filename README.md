@@ -23,7 +23,7 @@
   $\text{\color{#942ed9} thanx 4 reading. now come play touys with me ok? }$
   <br>
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/g10.gif">
-  <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/k19.gif">
+  <img align=center src="https://ridvenge.com/images/stamps/legendofthep.png">
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/b58.gif">
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/d55.gif">
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/a66.gif">
