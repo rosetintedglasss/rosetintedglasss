@@ -5,7 +5,7 @@
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/f62.png">
   <img align=center src="https://adriansblinkiecollection.neocities.org/stamps/e78.gif">
   <br>
-  $\text{\color{#d92e2e} rosie/lovebug, they/it, polyam trans nonbinary bisexual, 23 (feb 8th), did system }$
+  $\text{\color{#d92e2e} rosie/lovebug, they/it, polyamorous trans nonbinary bisexual, 23 (feb 8th), did system }$
   <img src="https://pixelsafari.neocities.org/favicon/nature/rainbow11.gif">
   <br>
   <img src="https://pixelsafari.neocities.org/favicon/object/tech/computer4.gif">
